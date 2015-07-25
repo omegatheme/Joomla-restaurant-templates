@@ -1,5 +1,5 @@
 # Joomla restaurant templates by OmegaTheme
-The best collection of Joomla restaurant templates by OmegaTheme. The best Joomla restaurant templates for cafes, pubs, coffee shops, and other food and beverage websites. Take your online restaurant to the higher lever with our powerful Joomla restaurant templates. These stuffs can make your website a perfect attraction for any customers and increase the popularity of your business. 
+The best collection of <a href="http://www.omegatheme.com/joomla-restaurant-templates">Joomla restaurant templates by OmegaTheme</a>. The best Joomla restaurant templates for cafes, pubs, coffee shops, and other food and beverage websites. Take your online restaurant to the higher lever with our powerful Joomla restaurant templates. These stuffs can make your website a perfect attraction for any customers and increase the popularity of your business. 
 
 ## Collection of Joomla restaurant templates:
 
